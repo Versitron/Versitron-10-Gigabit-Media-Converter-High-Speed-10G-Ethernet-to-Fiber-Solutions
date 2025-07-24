@@ -65,5 +65,3 @@ Explore a full range of high-quality 10G media converters and fiber networking s
 
 ---
 
-**Keywords targeted:**  
-10 Gigabit Media Converter, 10G Media Converter, 10 Gigabit Ethernet Converter, 10G RJ45 to SFP Converter, 10G Fiber Media Converter, 10G SFP Media Converter, 10G Ethernet to Fiber Converter, 10 Gigabit Fiber Converter, 10G RJ45 Media Converter, 10G SFP Fiber Converter, 10G Ethernet Media Converter, RJ45 to Fiber Converter 10G, 10 Gigabit SFP Converter, 10G Network Media Converter, Fiber to Ethernet 10G Converter, 1 RJ45 1 SFP Media Converter, 10G Multi-mode Fiber Converter, 10G Single-mode Fiber Converter, 10G SFP+ Media Converter, High-Speed Media Converter.
